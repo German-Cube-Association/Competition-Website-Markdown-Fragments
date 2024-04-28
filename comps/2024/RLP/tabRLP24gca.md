@@ -1,0 +1,9 @@
+[![](https://www.worldcubeassociation.org/rails/active_storage/blobs/redirect/eyJfcmFpbHMiOnsibWVzc2FnZSI6IkJBaHBBcGNqIiwiZXhwIjpudWxsLCJwdXIiOiJibG9iX2lkIn19--3f93d32973ed5f3ad112f6e04ddc042b289f871c/Ohne%20Titel.jpg)](https://www.germancubeassociation.de/)
+
+🇩🇪 Alle Wettkämpfe in Deutschland werden von Mitgliedern der [German Cube Association](https://www.germancubeassociation.de/) und weiteren freiwilligen Organisator:innen aus dem ganzen Land durchgeführt. Bitte kommt auf uns zu, wenn auch ihr Interesse am Organisieren eines Turniers habt. Ihr könnt der German Cube Association e.V. auch als Mitglied beitreten! Weitere Informationen erhaltet ihr auf unserer Website.
+🇬🇧 All competitions in Germany are run by members of the [German Cube Association](https://www.germancubeassociation.de/) and further voluntary organisers from all over the country. Please approach us if you are interested in hosting a competition. You can also join the German Cube Association e.V. as a member! Further information is available on our website.
+
+🇩🇪 Folge uns auf unseren Social-Media-Seiten, um über die neuesten Inhalte und Ankündigungen auf dem Laufenden zu bleiben!
+🇬🇧 Follow us on social media to stay up to date with new information and announcements!
+
+[![](https://www.worldcubeassociation.org/rails/active_storage/blobs/redirect/eyJfcmFpbHMiOnsibWVzc2FnZSI6IkJBaHBBcEVqIiwiZXhwIjpudWxsLCJwdXIiOiJibG9iX2lkIn19--c465d8deba5509ea829e38813e375c7a7b846b3f/fFmmADt.png)](https://www.instagram.com/germancubeassociation/) [![](https://www.worldcubeassociation.org/rails/active_storage/blobs/redirect/eyJfcmFpbHMiOnsibWVzc2FnZSI6IkJBaHBBcFVqIiwiZXhwIjpudWxsLCJwdXIiOiJibG9iX2lkIn19--500c3d9550cb8161085be58845afbf73b50190e7/Bildschirmfoto%202022-09-25%20um%2012.08.41.png)](https://www.twitch.tv/germanonlinecubing2020/)
